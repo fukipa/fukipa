@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @fukipa, talk to me at https://t.me/fukipa
+- 👋 Hi, I’m @fukipa
